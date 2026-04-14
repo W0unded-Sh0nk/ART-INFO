@@ -1,14 +1,31 @@
 ___ART INFO___
 
-_I Love drawing and want to start commissions !! but i don't know where to start TnT. But I love doing free art too !!_
+_I Love drawing and is my first time doing commissions !! I only take paypal_
 
-_If your ever looking for free art of a fursona, DM me and I can got ya :)_
+_PayPal: @Viin2690_
+
+_I do ragular and supporter commissions_
 
 _I Only do furries obviously (and animals maybe)_
 
 _I DONT do fetish art, cause your just weird :/_
 
-_I do light gore (or heavy, depends tho) SLIGHT N$FW, and Robots_
+_I can do just about whatever you ask of me_
+
+___Prices___
+
+_Headshot: 3$_
+
+_Half body: 5$_
+
+_full body: 7$_
+
+_For supporter I can do any of these with any supporter tier you want to give_
+
+_Add me on discord for more information_
+
+my style changes randomly so if you receive a art style different from the examples don't worry about it
+
 
 ___Art Examples Below___
 
