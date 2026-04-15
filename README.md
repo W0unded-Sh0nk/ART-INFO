@@ -1,8 +1,10 @@
 ___ART INFO___
 
-_I Love drawing and is my first time doing commissions !! I only take paypal_
+_I Love drawing and is my first time doing commissions !! I take paypal and cashapp (cahsapp preferred_
 
 _PayPal: @Viin2690_
+
+_Cashapp: $Vaz1l_
 
 _I do ragular and supporter commissions_
 
