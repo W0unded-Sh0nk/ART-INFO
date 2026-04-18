@@ -12,8 +12,6 @@ _I Only do furries obviously (and animals maybe)_
 
 _I DONT do fetish art, cause your just weird :/_
 
-_I can do just about whatever you ask of me_
-
 ___Prices___
 
 _Headshot: 3$_
